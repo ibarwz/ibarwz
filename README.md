@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @ibarwz
-- 👀 I’m interested in IT...
-- 🌱 I’m currently learning .fdedf..
-- 💞️ I’m looking to collaborate on .sdf..
-- 📫 How to reach me fs...
-- 😄 Pronouns: .df..
+- 👀 I’m interested in IT
+- 🌱 I’m currently learning  it
+- 💞️ I’m looking to collaborate on sait
+- 📫 How to reach me phone
+- 😄 Pronouns: ?
 - ⚡ Fun fact: ..i am ibra.
 
 <!---
